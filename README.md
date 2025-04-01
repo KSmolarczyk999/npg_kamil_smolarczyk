@@ -1,2 +1,2 @@
-tekst do labchdhdhoratorium
-inna edycja
+tekst do lab
+jd
