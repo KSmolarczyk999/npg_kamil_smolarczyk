@@ -1,2 +1,2 @@
 tekst do lab
-jd
+zmiana
