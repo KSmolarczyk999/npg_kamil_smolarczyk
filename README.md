@@ -1,0 +1,2 @@
+tekst do labchdhdhoratorium
+inna edycja
